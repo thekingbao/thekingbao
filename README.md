@@ -1,4 +1,4 @@
-## Hey there 👋 I'm thekingbao
+## Hey there 👋 I'm ThekingBao
 
 ## About Me 💯
 - 🕶️ You can call me "**Bao**" (or just "**thekingbao**").
